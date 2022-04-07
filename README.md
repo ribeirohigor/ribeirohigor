@@ -1,6 +1,6 @@
 ## Higor da Silva Ribeiro 🖐️ 
 
-###Trabalho na Iteris Software e Consultoria LTDA e faço partedo time  de Infraestrutura
+###Trabalho na Iteris Software e Consultoria LTDA 
 
 ###Faço curso  Técnico de Informatica no Senac Tatuapé 
 
